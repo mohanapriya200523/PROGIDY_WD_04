@@ -1,1 +1,0 @@
-# PROGIDY_WD_04
